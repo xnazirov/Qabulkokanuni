@@ -1,1 +1,1 @@
-# Qabulkokanuni
+# Qabulkokanduni
